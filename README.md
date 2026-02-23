@@ -1,1 +1,3 @@
-Henrique Gonçalves - Sistemas de Informaçã
+Henrique Gonçalves - Sistemas de Informação
+
+Alteração feita pelo navegador
